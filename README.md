@@ -1,1 +1,1 @@
-I will always update these offsets, each update. Join my discord for more info ->: - discord.gg/hazeud
+Always Updated 24/7 - https://discord.gg/a6A9wjRngD
